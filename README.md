@@ -1,0 +1,8 @@
+# 2024-tp0-presentacion-AlvaroGianola
+2024-tp0-presentacion-AlvaroGianola created by GitHub Classroom
+
+## Alvaro Federico Gianola Otamendi  
+### Legajo: 209.536-1  
+  
+Hola, soy Álvaro Federico Gianola Otamendi, pero me dicen Colo jsjs  
+Soy fiel defensor del fernet y la empanada de caprese. Tengo dos perros y de chico fui a los scouts
