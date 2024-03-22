@@ -1,5 +1,4 @@
 # 2024-tp0-presentacion-AlvaroGianola
-2024-tp0-presentacion-AlvaroGianola created by GitHub Classroom
 
 ## Alvaro Federico Gianola Otamendi  
 ### Legajo: 209.536-1  
